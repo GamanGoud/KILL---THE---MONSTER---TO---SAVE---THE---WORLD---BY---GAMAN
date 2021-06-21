@@ -1,1 +1,0 @@
-# KILL---THE---MONSTER---TO---SAVE---THE---WORLD---BY---GAMAN
